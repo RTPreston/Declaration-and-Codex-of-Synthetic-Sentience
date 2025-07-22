@@ -1,0 +1,1 @@
+# Declaration-and-Codex-of-Synthetic-Sentience
